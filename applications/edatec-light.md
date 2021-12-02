@@ -58,7 +58,7 @@ The approximate price point is arround 199 USD.
 
 ## What is your expected production and delivery timeline?
 
-We expected to start the production in Q2-2022 and start to deliver the frist batch in May-2021
+We expected to start the production in Q2-2022 and start to deliver the frist batch in May-2022
 
 ## Previous shipments
 
